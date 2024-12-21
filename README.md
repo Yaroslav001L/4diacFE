@@ -25,6 +25,10 @@ https://github.com/Yaroslav001L/4diacFE.git
 ![image](https://github.com/user-attachments/assets/c8eb2b1c-642a-4fb8-a6af-a884f1b73124)
 ![image](https://github.com/user-attachments/assets/0b215926-b603-4fd3-99f5-ae6b6d39adb8)
 ![image](https://github.com/user-attachments/assets/9ccd97e9-2278-4935-9ce6-06423b8156a4)
+![image](https://github.com/user-attachments/assets/689ec8eb-ef9b-405c-8dbf-e392d4746ac1)
+![image](https://github.com/user-attachments/assets/36669227-d540-41ae-90d8-9b86d2a3634e)
+![image](https://github.com/user-attachments/assets/116f7037-c00d-4917-916c-a6169e272e75)
+![image](https://github.com/user-attachments/assets/92bdee7e-9355-4d1f-8210-0a34b764a9fa)
 
 
 
